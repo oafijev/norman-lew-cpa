@@ -1,4 +1,6 @@
-## Welcome to Norman Lew, CPA
+## Partners
+
+* Norman Lew
 
 ## Under construction
 
